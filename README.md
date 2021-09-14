@@ -1,0 +1,2 @@
+# aritmetika-sosial
+laba rugi
